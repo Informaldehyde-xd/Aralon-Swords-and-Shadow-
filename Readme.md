@@ -12,6 +12,8 @@ only install if you believe in genuinely in my work....
 
 Enjoy..
 
+Also join out Discord server 'The Great Games Society' 
+
 ### Gallery
 
 <p align="center">
