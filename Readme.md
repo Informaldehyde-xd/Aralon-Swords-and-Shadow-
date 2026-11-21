@@ -8,7 +8,7 @@ no additional files needed.
 
 Recommended virus scan or malware scan before installation.
 
-only install if you believe in genuinely in my work....
+only install if you believe genuinely in my work....
 
 Enjoy..
 
